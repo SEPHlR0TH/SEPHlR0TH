@@ -1,5 +1,5 @@
 ## "did you know that in FF7..."
-hey there! Name's Ryu ( <img src="https://github.com/user-attachments/assets/3bba61a1-7bd2-46b2-a49c-a34f6df828ab" width="20" height="10"/> )
+hey there! Name's Vincent ( <img src="https://github.com/user-attachments/assets/3bba61a1-7bd2-46b2-a49c-a34f6df828ab" width="20" height="10"/> )
 
 <!--
 **nvoctis/nvoctis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
