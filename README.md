@@ -1,6 +1,6 @@
 ‎ ‎ ‎ $\color{#393842}{"Please}$ $\color{#393842}{insert}$  $\color{#393842}{a}$  $\color{#393842}{PlayStation®}$  $\color{#393842}{format}$  $\color{#393842}{disc"}$
 
-ㅤ<img src="https://github.com/user-attachments/assets/b040c050-0b69-47bc-9137-a63ac93428e9" width="300" height="150"/>
+ㅤ<img src="https://external-preview.redd.it/aEl0knHwivCjMMrMLVRKopxJjkuCvQunDLpE30kFDU0.gif?auto=webp&s=ba36eb0b5a3e764b2cad5f301edbd11d629a6558" width="300" height="145"/>
 
 ‎
 ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎  $\color{#472559}{VINCENT}$ 
