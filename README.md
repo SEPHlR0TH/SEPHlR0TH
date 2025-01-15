@@ -1,6 +1,6 @@
 ‎ ‎ ‎ $\color{#6c6c70}{"Please}$ $\color{#6c6c70}{insert}$  $\color{#6c6c70}{a}$  $\color{#6c6c70}{PlayStation®}$  $\color{#6c6c70}{format}$  $\color{#6c6c70}{disc"}$
 
-ㅤ<img src="https://external-preview.redd.it/aEl0knHwivCjMMrMLVRKopxJjkuCvQunDLpE30kFDU0.gif?auto=webp&s=ba36eb0b5a3e764b2cad5f301edbd11d629a6558" width="300" height="145"/>
+‎ ‎ ‎ ‎ ‎ ‎ ㅤ<img src="https://media.tenor.com/KZsQ6Al56NoAAAAM/anya-mouthwashing.gif" width="245" height="165"/>
 
 ‎
 ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎  $\color{#7771ab}{VINCENT}$ 
