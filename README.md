@@ -1,27 +1,27 @@
-‎ ‎ ‎ $\color{#6c6c70}{"Please}$ $\color{#6c6c70}{insert}$  $\color{#6c6c70}{a}$  $\color{#6c6c70}{PlayStation®}$  $\color{#6c6c70}{format}$  $\color{#6c6c70}{disc"}$
+‎ ‎ ‎ Please insert a PlayStation format disc
 
 ‎ ‎ ‎ ‎ ‎ ‎ ㅤ<img src="https://media.tenor.com/KZsQ6Al56NoAAAAM/anya-mouthwashing.gif" width="245" height="165"/>
 
 ‎
-‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎  $\color{#7771ab}{VINCENT}$ 
-$\color{#6862a1}{✧}$ 
-$\color{#6b65a1}{18}$ 
-$\color{#5c5699}{✧}$
-$\color{#49428a}{𝘩𝘦/𝘩𝘪𝘮}$
-$\color{#393278}{✧}$
+‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ VINCENT
+✧
+18
+✧
+𝘩𝘦/𝘩𝘪𝘮
+✧
 
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ $\color{#8288ad}{esp/eng}$ $\color{#716fa6}{,,}$ 
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ esp/eng ,,
 ‎‎
 ‎‎
-$\color{#6f89b0}{feel}$ 
-$\color{#506a91}{free}$
-$\color{#3d577d}{to}$ 
-$\color{#2c456b}{INT}$
+feel 
+free
+to
+INT
 
 ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ <img src="https://camo.githubusercontent.com/136dc6055224a02b56513f64ed67d556184874736a54435f0558257a9794ba1e/68747470733a2f2f7777772e616e61697467616d65732e636f6d2f77702d636f6e74656e742f75706c6f6164732f323032342f30322f6666372d6d6f6e6f672d616c62672d706f72742e706e67" width="230" height="80"/>  
 
 ‎‎
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎  $\color{#4c4e8a}{✦}$‎ 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎  ✦
 DNI if you're under 15
 
 
